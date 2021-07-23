@@ -12,3 +12,5 @@
   - 所在地: 東京都町田市金森6
 
 https://suumo.jp/chintai/bc_100240407847/?ar=030
+
+https://suumo.jp/chintai/bc_100239283503/?ar=030
